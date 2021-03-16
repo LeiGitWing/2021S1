@@ -1,5 +1,19 @@
 ## FIT1049 Assessment
 
+![image-20210311201820417](https://tva1.sinaimg.cn/large/008eGmZEgy1gog8cgh5zkj31la0lin1r.jpg)
+
+
+
+**week 1: individual submission**
+
+**week 2: group submission**
+
+**Week3--week7: individual submission**
+
+**Week8, 9: group submission**
+
+
+
 eFolio assessment, need to submit every week, and the due is in week 10.
 
 Assignment 1 
